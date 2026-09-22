@@ -132,7 +132,7 @@ For enterprise automation, technical consulting, software engineering partnershi
 Sajida Abid Malik
 
 📧 **Email**
-Sajidaabidofficial@gmail.com
+NexusAutomationAgency1@gmail.com 
 
 ---
 
